@@ -1,2 +1,2 @@
 # BardGame
-OK THIS TimE DOn't @ ME
+Helper on things just ask and I will see if I can.
